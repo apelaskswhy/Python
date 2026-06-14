@@ -52,4 +52,4 @@ Kesalahan akan diperbaiki, materi akan berkembang, dan pemahaman akan bertambah 
 
 ## Dibuat oleh
 
-Muh. Mughni Wahyuddin
+Apel S.Ap, S.Se
